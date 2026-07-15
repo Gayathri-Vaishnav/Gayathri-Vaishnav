@@ -103,11 +103,10 @@
 
 ## 📫 Connect with Me
 
-📧 Email: your-email@example.com
+📧 Email: gayathripv031@gmail.com
 
 💼 LinkedIn: https://linkedin.com/in/your-profile
 
-🌐 Portfolio: Coming Soon
 
 ---
 
